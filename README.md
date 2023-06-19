@@ -1,3 +1,3 @@
 # 🥊Antón
 
-**`Digital Craftsman (Developer/Artist)´**
+**`Digital Craftsman (Developer/Artist)`**
